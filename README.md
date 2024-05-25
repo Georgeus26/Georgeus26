@@ -5,4 +5,4 @@ I firmly believe that the future is teeming with potential and limitless opportu
 This github embodies my journey of navigating the ever-evolving technology landscape.
 Let's collaborate in this endeavor to push boundaries, embrace the tech revolution, and seize all the unfolding possibilities! 🚀
 this is what chatgpt says..
-i'm actually just tech nerd, end of story. (These are ai generated, don't trut me, i know nothing!)
+i'm actually just tech nerd, end of story. (These are ai generated, don't trust me, i know nothing!)
